@@ -1,1 +1,1 @@
-# Akanecko2.github.io
+https://discord.kimetsuklub3.repl.co/をみてください
