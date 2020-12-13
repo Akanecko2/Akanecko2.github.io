@@ -1,1 +1,1 @@
-https://discord.kimetsuklub3.repl.co/をみてください
+https://discord.kimetsuklub3.repl.co   をみてください
